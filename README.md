@@ -3,4 +3,4 @@
  
  Actualmente estoy estudiando para convertirme en Backend Developer.
  
- Un gusto! Pueden contactarme por mail gasparinijulian@outlook.com, o por discord: slowz-#8825
+ Un gusto! Pueden contactarme por mail gasparinijulian@outlook.com
